@@ -1,0 +1,1 @@
+# Script-solucionaor-de-red-PARROT
